@@ -17,3 +17,4 @@ Dış ticarette etkin rol oynayan bu aileler saray seçkinlerinin kişisel tedar
 
 Kişisel not: Sarraflar resmen birer banka ve risk sermayesi kurumu halini almış.
 
+Manuk Mirzayan örneği incelenecek olursa bu sarrafların iç ve dış siyasete direkt olarka yön verdiği görülebilir. Hem III. Selim'in tahta gelmesi için gerçekleşen darbenin finansörü olmuş hem de dış siyasette Ruslarla barış görüşmelerini yürütmek ve Napolyon savaşları döneminde önemli bir diplomatik rol oynamak gibi etkileri olmuştur.
