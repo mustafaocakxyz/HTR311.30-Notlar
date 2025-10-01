@@ -10,3 +10,10 @@ Sarraf para insanıdır. Bir kıymeti diğerine çevirir. ... Yani sarrafı ayn�
 18. yüzyılın ortalarından itibaren Ermeni aileler finans sektöründe hakim unsur haline gelmiştir. Dış ticari ortaklıkları artmıştır. Bu Ermeni sarraf ve tacir grubuna amira unvanı verilmiştir.
 
 Ermeni, Rum ve Yahudi tüccarların başarısının önemli bir etmeni dini ve etnik yakınlık üzerinden kurulan ortaklıklardır ancak tek etmen bu değildir.
+
+Dış ticarette etkin rol oynayan bu aileler saray seçkinlerinin kişisel tedarikçileri oldmakla birlikte idari birimlerle kurumsal ilişkiler de kurmuşlardır. Kredi vermiş, finasne etmiş ve borç vermişlerdir.
+
+1775 yılından itibaren sarraflar devlet hisselerini pazarlamışlardı. Artık sarraflar para ve borç piyasasını belirleyen ana aktörler olmuşlar hatta imparatorluk nizamının bir parçası haline gelmişlerdi.
+
+Kişisel not: Sarraflar resmen birer banka ve risk sermayesi kurumu halini almış.
+
