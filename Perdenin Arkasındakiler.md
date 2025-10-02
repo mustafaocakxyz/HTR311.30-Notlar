@@ -18,3 +18,14 @@ Dış ticarette etkin rol oynayan bu aileler saray seçkinlerinin kişisel tedar
 Kişisel not: Sarraflar resmen birer banka ve risk sermayesi kurumu halini almış.
 
 Manuk Mirzayan örneği incelenecek olursa bu sarrafların iç ve dış siyasete direkt olarka yön verdiği görülebilir. Hem III. Selim'in tahta gelmesi için gerçekleşen darbenin finansörü olmuş hem de dış siyasette Ruslarla barış görüşmelerini yürütmek ve Napolyon savaşları döneminde önemli bir diplomatik rol oynamak gibi etkileri olmuştur.
+
+Abraham, Hüseyin Bey ve Filibe halkı ile ilgili bir alacaklılık anlatılıyor. Yazılı bazı belgeler konuşuluyor. Sarrafların ne kadar önemli bir konumda olduğuna dikkat çekiliyor.
+
+Halet Efendi, Ali Paşa'nın muhallefatını yönetecek ancak harcırah bulunamıyor. Bu maliyetli bir süreç olduğundan para lazımdı. Darphane ise bunu sağlayamadı. Sarraflardan yardım istendi, sarraflar sefer için ayrılmış paradan 40.000 guruş alırlarsa bunu işletip harcırahı sağlayabileceklerini söylediler.
+
+Trabzon Hanedanından birisi idam ediliyor. Muhallefatından sarraflar epeyce haberdarlar, ayrıca kiminle alacak verecek ilişkisi olduğuna da hakimler.
+
+## Sonuç
+
+<img width="785" height="539" alt="Screenshot 2025-10-02 at 15 52 12" src="https://github.com/user-attachments/assets/b0050ac1-d0f2-4bb1-be7f-8a2fa608df8e" />
+
