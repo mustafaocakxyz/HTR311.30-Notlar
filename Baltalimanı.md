@@ -18,4 +18,29 @@ Nihayet Serbest Ticaret Anlaşması ile Mısır'daki bu kalkınma durdurulmuş, 
 *Kişisel not:* İngiltere resmen iki tarafa da aynı anda zarar verip iki taraftan da aynı miktarda fayda görmeyi başarıyor. Müttefik olmaları gereken iki profil düşman olurlarsa ikisinin de ortak düşmanı ikisini de öldürür.
 
 
-### Batılı Tüccarların Karşılaştığı Engeller
+Bunlarla birlikte "Batılı Tüccarların Karşılaştığı Engeller" etkili olmuştur.
+
+## 1838 Serbest Ticaret Anlaşması
+
+İngiltere ve diğer Avrupa devletleri ile Osmanlı devleti arasında asimetrik ve eşitsiz ilişki oluşmaya başladı.
+
+Anlaşma o kadar İngilizlerin lehine Osmanlı aleyhineydi ki Urquhart, "...Türk ve İslam alemi böyle bir antlaşmanın karşısında fazla dayanamaz" ifadesini kullanmıştır.
+
+
+## Sanayi Devrimi ve 1838 Serbest Ticaret Anlaşmasının Osmanlı İmalat Sektörü Üzerindeki Etkisi
+
+Ticaret hadleri iyileştikten sonra kısa vadede işler iyiye gitmiş (çünkü dış mallar ucuzlamış) olsa da dışa bağımlılık arttıkça bu durum tersine dönmüş, pazardaki arzı sürdürebilmek için ithalat düzeyleri sürekli artırılmak zorunda kalmıştır.
+
+İç pazarda İngiliz ürünleri yaygınlaştıkça yerel esnaf ve zanaatkarlar iflas etmeye başlamıştır. Öyle ki pamuk / iplik tezgahları birkaç senede 1000'den 75'e düşmüştür.
+
+Avrupa mallarının seri ve ucuza üretilmesiyle birlikte yasal olarak çok daha az külfete maruz kalması, bunun yanında yerel malların çokça resimlere tabii olması pazarda bulunmalarını imkansızlaştırıyordu.
+
+**Kişisel not:** Üretim ve gelişim durur ancak tüketim devam ederse işte böyle olur. Dışa bağımlılık artar, koskoca bir devlet çöker.
+
+Osmanlı bürokratları ancak 1860'lı yıllarda sanayi yönünde eğitim / üretim atılımlarında bulunmuş ancak çoğu girişim rekabet edemeyip başarısız olmuştu. Ayrıca bu girişimlere rağmen yerli sanayicilere uygulanan ağır vergiler rekabet etmeyi daha da zorlaştırıyordu.
+
+Bütün bu olumsuzluklar süredursun, İngiltere'nin Osmanlı'ya ihracatı sürekli olarak artmaya devam etmiştir. 1827 - 1843 yılları arasında bu ihracat 6.7 kat artmıştır.
+
+## Sonuç
+
+Serbest ticaret ilkeleri çerçevesinde az gelişmiş ülkelerin dünya ekonomisne eklemlendiği küreselleşme dönemleri, çevre ekonomilerin kalkınma dinamiklerinin büyük ölçüde tahrip edilmesi ile sonuçlanmaktadır.
